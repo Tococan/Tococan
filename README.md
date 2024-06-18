@@ -5,4 +5,3 @@
 - 📫 How to reach me: through discord or wherever else you can find me
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I own 1 Cockatiel and 7 Quails, yet my favourite bird is a Toucan
-- 
