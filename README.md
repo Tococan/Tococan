@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tococan
 - 👀 I’m interested in: 3D Printing, Building computers and lil circuits and photography
-- 🌱 I’m currently learning: Robotics in highschool and ICT in TAFE
+- 🌱 I’m currently learning: ICT in TAFE, and had a passing grade in highschool robotics
 - 💞️ I’m looking to collaborate on: nothing, i dont plan to make any public projects on this website
 - 📫 How to reach me: through discord or wherever else you can find me
 - 😄 Pronouns: He/Him
